@@ -1,1 +1,0 @@
-# itneuro.github.io
